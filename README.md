@@ -1,2 +1,2 @@
 # saturday
-saturday day is good
+saturday day is god 
